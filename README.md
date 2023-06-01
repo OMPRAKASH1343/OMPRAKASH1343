@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **ompks1343@gmail.com**
 
-- ⚡ Fun fact **I am like a code under development**
+- ⚡ Fun fact ** I am like a code under development **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
